@@ -1,0 +1,1 @@
+# Vit-Registry-Fix-Full-Version
